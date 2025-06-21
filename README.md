@@ -20,8 +20,8 @@
 ---
 
 📫 **Let's Connect**  
-- LinkedIn: [[Yash Mandaliya](https://www.linkedin.com/in/yashmandaliya2584)]  
-- Email: [yashh.mandaliya@gmail.com]  
+- LinkedIn: [Yash Mandaliya](https://www.linkedin.com/in/yashmandaliya2584)
+- Email: yashh.mandaliya@gmail.com  
 
 ---
 
